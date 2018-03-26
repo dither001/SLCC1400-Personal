@@ -1,0 +1,1 @@
+Inspired by Dungeons & Dragons (5e) Dungeon Master's Guide

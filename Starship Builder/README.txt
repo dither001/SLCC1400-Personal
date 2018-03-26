@@ -1,0 +1,1 @@
+Inspired by Mongoose Traveller (1e)
